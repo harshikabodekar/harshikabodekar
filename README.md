@@ -1,5 +1,5 @@
 # 💫 About Me:
- Hey there! <br><br>Since you’ve landed on my profile, you probably already know my name—but just in case, it’s Harshika Bodekar!<br>B.Tech student by day, wannabe tech wizard by night.<br>I basically build stuff that makes me go “whoa that’s cool!”<br>but sometimes its just "My Uni wants me to do that - -" or "My Boss put me on deadline :)"<br>So yeah, this is me… at least in the geeky, code-obsessed part of life.<br><br>Enjoy the chaos!<br>
+ Hey there! <br><br>Since you’ve landed on my profile, you probably already know my name—but just in case, it’s Harshika Bodekar!<br>B.Tech student by day, wannabe tech wizard by night.<br>I basically build stuff that makes me go “whoa that’s cool!”<br>but sometimes its just "My Uni wants me to do that - -" or "My Boss put me on deadline :)"<br>Been lurking on GitHub since forever but only decided to actually *do stuff* here from Jan 2025 —  figuring things out <br>so yeah, certified newbie energy. Try being nice <3<br><br>So yeah, this is me… at least in the geeky, code-obsessed part of life.<br><br>Enjoy the chaos!<br>
 
 
 ## 🌐 Socials:
